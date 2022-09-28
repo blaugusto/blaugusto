@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @blaugusto
-- 🌱 I’m currently learning mor from Front-End and Design
+- 🌱 I’m currently learning more from Front-End and Design
 - 💞️ I’m looking to collaborate on Web e Design Jobs
 - 📫 How to reach me
 - wa.me/5519992030303
